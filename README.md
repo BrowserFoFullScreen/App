@@ -1,4 +1,4 @@
-# Learning English
+# CampusOfGuilinUniversity
 
 ## FeedBack
-If you have any questions, please contact our technical support: us3073@163.com
+If you have any questions, please contact our technical support: x5c95u@163.com
